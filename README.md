@@ -1,5 +1,4 @@
 # NitroCommunity.
-Who is Nitro Community?
 
 🎉  Nitro Community 🎉 
 Hey, welcome to Nitro Community! This is a giveaway themed server where we host tons of giveaways.
